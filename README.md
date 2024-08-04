@@ -2,24 +2,24 @@
 
 Click on the room to get to live interpretations of different languages!
 
-[Dilijan (streaming + interpretation)](./Dilijan/)
+[Dilijan (streaming + interpretation)](./dilijan/)
 
 Tbilisi (streaming)
 
 Belgrade (streaming)
 
-[Ohrid (streaming + interpretation)](./Ohrid/)
+[Ohrid (streaming + interpretation)](./ohrid/)
 
 Istanbul (streaming)
 
-[Warsaw (streaming + interpretation)](./Warsaw/)
+[Warsaw (streaming + interpretation)](./warsaw/)
 
-[Lviv (streaming + interpretation)](./Lviv/)
+[Lviv (streaming + interpretation)](./lviv/)
 
-[Kyiv Auditorium (streaming + interpretation)](./Kyiv/)
+[Kyiv Auditorium (streaming + interpretation)](./kyiv/)
 
-[Gdańsk Main Hall (streaming + interpretation)](./Gdansk/)
+[Gdańsk Main Hall (streaming + interpretation)](./gdansk/)
 
-[Voore (stream + interpretation only on 7th)](./Voore/)
+[Voore (stream + interpretation only on 7th)](./voore/)
 
 Modra (no livestream or interpretation)
