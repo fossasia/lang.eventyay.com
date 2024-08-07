@@ -11,8 +11,8 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 [Français](https://www.youtube.com/watch?v=64mi0yNz8qg) 
 
-[Русский](https://www.youtube.com/watch?v=rHo5eL7VpOY) 
+[Русский](https://wikimania-live.eventyay.com/rooms/91df9867-f163-468e-a6a5-ede94cf0fe70/) 
 
-[Español](https://www.youtube.com/watch?v=HMQQ_yFFrug) 
+[Español](https://www.youtube.com/watch?v=rHo5eL7VpOY) 
 
 [Українська](https://www.youtube.com/watch?v=CHXJX_UELks)
