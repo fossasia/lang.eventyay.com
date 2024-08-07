@@ -5,14 +5,14 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 ## Room Kyiv
 
-[English](https://youtube.com)
+[English](https://www.youtube.com/watch?v=uw4PblO9_do)
 
-[العربيّة ](https://youtube.com)
+[العربيّة ](https://www.youtube.com/watch?v=2UAbGJekNEs)
 
-[Français](https://youtube.com) 
+[Français](https://www.youtube.com/watch?v=OXVWAfg343Y) 
 
-[Русский](https://youtube.com) 
+[Русский](https://www.youtube.com/watch?v=txwufXfT3ec) 
 
-[Español](https://youtube.com) 
+[Español](https://www.youtube.com/watch?v=OYGUEwOpkpw) 
 
-[Українська](https://youtube.com)
+[Українська](https://www.youtube.com/watch?v=o6tJgnE62n0)

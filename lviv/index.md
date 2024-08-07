@@ -5,14 +5,14 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 ## Room Lviv
 
-[English](https://youtube.com)
+[English](https://www.youtube.com/watch?v=j6aUWluTsYE)
 
-[العربيّة ](https://youtube.com)
+[العربيّة ](https://www.youtube.com/watch?v=eY-x0yRTf7c)
 
-[Français](https://youtube.com) 
+[Français](https://www.youtube.com/watch?v=64mi0yNz8qg) 
 
-[Русский](https://youtube.com) 
+[Русский](https://www.youtube.com/watch?v=LbOlMZqAWH0) 
 
-[Español](https://youtube.com) 
+[Español](https://www.youtube.com/watch?v=HMQQ_yFFrug) 
 
-[Українська](https://youtube.com)
+[Українська](https://www.youtube.com/watch?v=CHXJX_UELks)

@@ -5,14 +5,14 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 ## Room Warsaw
 
-[English](https://youtube.com)
+[English](https://www.youtube.com/watch?v=ReuYxgL6idY)
 
-[العربيّة ](https://youtube.com)
+[العربيّة ](https://www.youtube.com/watch?v=jVZ5CwtTKGM)
 
-[Français](https://youtube.com) 
+[Français](https://www.youtube.com/watch?v=HjCdHNL_dss) 
 
-[Русский](https://youtube.com) 
+[Русский](https://www.youtube.com/watch?v=BCtstSNvjXA) 
 
-[Español](https://youtube.com) 
+[Español](https://www.youtube.com/watch?v=r4j2xtivAO8) 
 
-[Українська](https://youtube.com)
+[Українська](https://www.youtube.com/watch?v=jhbWM7cxdg8)
