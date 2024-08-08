@@ -20,6 +20,6 @@ Istanbul (streaming)
 
 [Gdańsk Main Hall (streaming + interpretation)](./gdansk/)
 
-[Voore (stream + interpretation only on 7th)](./voore/)
+Voore (no livestream or interpretation)
 
 Modra (no livestream or interpretation)
