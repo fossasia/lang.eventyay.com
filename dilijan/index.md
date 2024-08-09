@@ -11,7 +11,7 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 [Français](https://www.youtube.com/watch?v=pxiDmWEZqkQ) 
 
-[Русский](https://www.youtube.com/watch?v=5naOAr8Vq5k 
+[Русский](https://www.youtube.com/watch?v=5naOAr8Vq5k)
 
 [Español](https://www.youtube.com/watch?v=UA4-ambiquk) 
 
