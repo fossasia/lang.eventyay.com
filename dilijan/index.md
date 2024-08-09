@@ -5,14 +5,21 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 ## Room Dilijan
 
-[English](https://www.youtube.com/watch?v=kZ_qfvcxNdc)
+[English](https://www.youtube.com/watch?v=dxsH-5hpzJA)
 
-[العربيّة ](https://www.youtube.com/watch?v=nE3mHP1323g)
+[العربيّة ](https://www.youtube.com/watch?v=fQZsxIxY6o0)
 
-[Français](https://www.youtube.com/watch?v=pxiDmWEZqkQ) 
+[Français](https://www.youtube.com/watch?v=5TGVy9uWS0k) 
 
-[Русский](https://www.youtube.com/watch?v=5naOAr8Vq5k)
+[Español](https://www.youtube.com/watch?v=1p83bmmnTio) 
 
-[Español](https://www.youtube.com/watch?v=UA4-ambiquk) 
+[Русский](https://www.youtube.com/watch?v=Bz7nkm0ZzRo)
 
-[Українська](https://www.youtube.com/watch?v=ZPGbhgQI_cM)
+[Українська](https://www.youtube.com/watch?v=SFWPNyXxLes)
+
+
+
+
+
+
+

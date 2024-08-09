@@ -5,14 +5,14 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 ## Room Ohrid
 
-[English](https://www.youtube.com/watch?v=AKICTThYgeg)
+[English](https://www.youtube.com/watch?v=faB7KMG13as)
 
-[العربيّة ](https://www.youtube.com/watch?v=FGDYyKOK_jw)
+[العربيّة ](https://www.youtube.com/watch?v=rQ0UFveX6VQ)
 
-[Français](https://www.youtube.com/watch?v=gqsg8RDnNMg) 
+[Français](https://www.youtube.com/watch?v=QDQlC9sL5w4) 
 
-[Русский](https://www.youtube.com/watch?v=-SciVvZ_aPc) 
+[Español](https://www.youtube.com/watch?v=WQwGz4buWxY) 
 
-[Español](https://www.youtube.com/watch?v=5VzfWvdGXQM) 
+[Русский](https://www.youtube.com/watch?v=L3MCdI0c1oU) 
 
-[Українська](https://www.youtube.com/watch?v=2sYA3VCq23k)
+[Українська](https://www.youtube.com/watch?v=2FGq1IxUTFg)

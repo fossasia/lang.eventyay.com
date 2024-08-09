@@ -5,14 +5,14 @@ Please click on of the following links to get to the YouTube stream of the inter
 
 ## Room Gdansk
 
-[English](https://www.youtube.com/watch?v=oX71xGfWgmI)
+[English](https://www.youtube.com/watch?v=p3iaM0It6z8)
 
-[العربيّة ](https://www.youtube.com/watch?v=EJJyJHiS_9g)
+[العربيّة ](https://www.youtube.com/watch?v=GAcBCuNM1lU)
 
-[Français](https://www.youtube.com/watch?v=5X6knbE7D88) 
+[Français](https://www.youtube.com/watch?v=HdM7L70yXcc) 
 
-[Русский](https://www.youtube.com/watch?v=7an1dXa5D6o) 
+[Русский](https://www.youtube.com/watch?v=ZYBOW3BuLQU) 
 
-[Español](https://www.youtube.com/watch?v=S1uWoNgDk-A) 
+[Español](https://www.youtube.com/watch?v=enj0HEJz38A) 
 
-[Українська](https://www.youtube.com/watch?v=F0tUVdbF9q0)
+[Українська](https://www.youtube.com/watch?v=NsLOJwrV7O4)
