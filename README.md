@@ -1,25 +1,9 @@
-# Wikimania 2024
+# Wiki Indaba 2024
 
 Click on the room to get to live interpretations of different languages!
 
-[Dilijan (streaming + interpretation)](./dilijan/)
+[Sisonke (streaming + interpretation)](./sisonke/)
 
-Tbilisi (streaming)
+[Ubuntu (streaming + interpretation)](./ubuntu/)
 
-Belgrade (streaming)
-
-[Ohrid (streaming + interpretation)](./ohrid/)
-
-Istanbul (streaming)
-
-[Warsaw (streaming + interpretation)](./warsaw/)
-
-[Lviv (streaming + interpretation)](./lviv/)
-
-[Kyiv Auditorium (streaming + interpretation)](./kyiv/)
-
-[Gdańsk Main Hall (streaming + interpretation)](./gdansk/)
-
-Voore (no livestream or interpretation)
-
-Modra (no livestream or interpretation)
+[Injabulo (streaming + interpretation)](./injabulo/)
