@@ -3,7 +3,7 @@
 Please click on of the following links to get to the YouTube stream of the interpretation
 
 
-## Room Dilijan
+## Room Sisonke
 
 [English](https://www.youtube.com/)
 
