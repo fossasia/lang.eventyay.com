@@ -1,11 +1,11 @@
 # Wikimania 2024
 
-Please click on of the following links to get to the YouTube stream of the interpretation
+Please click on of the following links to get to the YouTube stream of the live interpretation.
 
 
 ## Room Ubuntu
 
-[English](https://www.youtube.com/watch?v=WKVCr6Ns98U)
+[Français](hhttps://www.youtube.com/watch?v=nT4R9obhAtA) 
 
-[Français](https://www.youtube.com/watch?v=D5tNHl41FVg) 
+[English](https://www.youtube.com/watch?v=iFDucCsrJiY)
 
