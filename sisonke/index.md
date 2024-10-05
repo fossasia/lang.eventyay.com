@@ -5,9 +5,9 @@ Please click on of the following links to get to the YouTube stream of the live 
 
 ## Room Sisonke
 
-[Français](https://www.youtube.com/watch?v=KuBH2bZ_upg) 
+[Français](https://www.youtube.com/watch?v=VhawIHE50DY) 
 
-[English](https://www.youtube.com/watch?v=tkXX5Vn54dw)
+[English](https://www.youtube.com/watch?v=TG4sNR_DAIc)
 
 
 

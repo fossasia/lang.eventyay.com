@@ -5,7 +5,7 @@ Please click on of the following links to get to the YouTube stream of the live 
 
 ## Room Ubuntu
 
-[Français](hhttps://www.youtube.com/watch?v=nT4R9obhAtA) 
+[Français](https://www.youtube.com/watch?v=O7uT19cbm-o) 
 
-[English](https://www.youtube.com/watch?v=iFDucCsrJiY)
+[English](https://www.youtube.com/watch?v=ByaghchKdDY)
 
