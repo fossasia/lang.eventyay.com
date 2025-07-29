@@ -1,4 +1,4 @@
-# Wiki Indaba 2024
+# Wikimania 2025
 
 Click on the room to get to live interpretations of different languages!
 
