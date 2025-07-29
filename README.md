@@ -2,8 +2,12 @@
 
 Click on the room to get to live interpretations of different languages!
 
-[Sisonke (streaming + interpretation)](./sisonke/)
+[Nairobi (streaming + interpretation)](./nairobi/)
 
-[Ubuntu (streaming + interpretation)](./ubuntu/)
+[Mombasa (streaming + interpretation)](./mombasa/)
 
-[Injabulo (streaming + interpretation)](./injabulo/)
+[Kisumu (streaming + interpretation)](./kisumu/)
+
+[Meru (streaming + interpretation)](./meru/)
+
+[Eldoret (streaming + interpretation)](./eldoret/)
