@@ -6,12 +6,12 @@ Please click on of the following links to get to the YouTube stream of the live 
 ## Room Meru
 
 
-[العربية](https://www.youtube.com/watch?v=ql6jk_EHQeQ)
+[العربية](https://www.youtube.com/watch?v=ZLaTX3CQL58)
 
-[Français](https://www.youtube.com/watch?v=IjTnQnKBoe0)
+[Français](https://www.youtube.com/watch?v=ZLaTX3CQL58)
 
-[Español](https://www.youtube.com/watch?v=wWv8SGQ69lw)
+[Español](https://www.youtube.com/watch?v=ZDJ07Qa2EEs)
 
-[Kiswahili](https://www.youtube.com/watch?v=Fz7u1D9AZd8)
+[Kiswahili](https://www.youtube.com/watch?v=EvaUgvgFEFY)
 
-[English](https://www.youtube.com/watch?v=x5kvjgPlIOY)
+[English](https://www.youtube.com/watch?v=1H1gSlAeW_I)
