@@ -8,7 +8,7 @@ Please click on of the following links to get to the YouTube stream of the live 
 
 [العربية](https://www.youtube.com/watch?v=dJPui-ZbQ88)
 
-[Français](https://www.youtube.com/watch?v=JRq03GRD6vM)
+[Français](https://www.youtube.com/watch?v=dUWM6UIgUvU)
 
 [Español](https://www.youtube.com/watch?v=I-7DNIDLuMw)
 
