@@ -14,4 +14,4 @@ Please click on of the following links to get to the YouTube stream of the live 
 
 [Kiswahili](https://www.youtube.com/watch?v=zVVEvvGKJlI)
 
-[English](https://www.youtube.com/watch?v=JRkyMxihIQg)
+[English](https://www.youtube.com/watch?v=c6usG5BtOds)
