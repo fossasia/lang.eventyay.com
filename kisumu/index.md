@@ -6,12 +6,12 @@ Please click on of the following links to get to the YouTube stream of the live 
 ## Room Kisumu
 
 
-[العربية](https://www.youtube.com/watch?v=JjTR8dtgCms)
+[العربية](https://www.youtube.com/watch?v=aoPtXlFZHkg)
 
-[Français](https://www.youtube.com/watch?v=nxTJNBtCXZY)
+[Français](https://www.youtube.com/watch?v=6mR5FEy_taw)
 
-[Español](https://www.youtube.com/watch?v=RFLgmMnM9Mo)
+[Español](https://www.youtube.com/watch?v=ORXH3vUb0PQ)
 
-[Kiswahili](https://www.youtube.com/watch?v=zVVEvvGKJlI)
+[Kiswahili](https://www.youtube.com/watch?v=VhMtSTy_bIU)
 
-[English](https://www.youtube.com/watch?v=c6usG5BtOds)
+[English](https://www.youtube.com/watch?v=iIIi-5gFARU)

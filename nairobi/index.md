@@ -5,12 +5,12 @@ Please click on of the following links to get to the YouTube stream of the live 
 
 ## Room Nairobi
 
-[العربية](https://www.youtube.com/watch?v=m_Yf6QEGzkU)
+[العربية](https://www.youtube.com/watch?v=z__KNiecHfs)
 
-[Français](https://www.youtube.com/watch?v=jhVK4Lk9y3E)
+[Français](https://www.youtube.com/watch?v=R5InwPNecaA)
 
-[Español](https://www.youtube.com/watch?v=dIua9ZOYGq8)
+[Español](https://www.youtube.com/watch?v=-YuiHUu4BlU)
 
-[Kiswahili](https://www.youtube.com/watch?v=eFtIAvdo-m4)
+[Kiswahili](https://www.youtube.com/watch?v=qvDxY-dO_WM)
 
-[English](https://www.youtube.com/watch?v=OuaRKkJfDco)
+[English](https://www.youtube.com/watch?v=iE342rsexng)
