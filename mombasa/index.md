@@ -6,12 +6,12 @@ Please click on of the following links to get to the YouTube stream of the live 
 ## Room Mombasa
 
 
-[العربية](https://www.youtube.com/watch?v=YcBZkG2N8Ww)
+[العربية](https://www.youtube.com/watch?v=j_4UrCokfAw)
 
-[Français](https://www.youtube.com/watch?v=5YGkVoLPtHA)
+[Français](https://www.youtube.com/watch?v=NWIvRl5DTuM)
 
-[Español](https://www.youtube.com/watch?v=JJOOUlCk3VU)
+[Español](https://www.youtube.com/watch?v=NOSvx814eM0)
 
-[Kiswahili](https://www.youtube.com/watch?v=C7q1nqykHI0)
+[Kiswahili](https://www.youtube.com/watch?v=QVwPD_4zyE4)
 
-[English](https://www.youtube.com/watch?v=uCZpGFgj8e8)
+[English](https://www.youtube.com/watch?v=AeSZASClx64)
