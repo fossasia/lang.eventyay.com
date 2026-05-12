@@ -1,13 +1,15 @@
-# Wikimania 2025
+# ESEAPCon 2026 - Main Room
 
-Click on the room to get to live interpretations of different languages!
+Please select your preferred language below to access the YouTube live interpretation stream
 
-[Nairobi (streaming + interpretation)](./nairobi/)
+[Chinese](https://www.youtube.com/watch?v=bg49Pgd-5TY)
 
-[Mombasa (streaming + interpretation)](./mombasa/)
+[Indonesian](https://www.youtube.com/watch?v=vDYzEtrYOB4)
 
-[Kisumu (streaming + interpretation)](./kisumu/)
+[Japanese](https://www.youtube.com/watch?v=ipVez1q0xjE)
 
-[Meru (streaming + interpretation)](./meru/)
+[Korean](https://www.youtube.com/watch?v=8ERhzrrmEnM)
 
-[Eldoret (streaming + interpretation)](./eldoret/)
+[Thai](https://www.youtube.com/watch?v=8DvtZuScoWI)
+
+[English](https://www.youtube.com/watch?v=Ncy8-U_-grM)
